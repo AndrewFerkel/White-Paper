@@ -1,5 +1,5 @@
 # Abstract
-I plan to research gun ownership among Americans. I will look at hunters and regular civilians. I have websites dedicated to survey gun owners, stockpile statistics on gun owners, reseaarch the relationship between gun ownership and crime, etc. I have also listed news reports of gun research and crime. I'm not positive what exactly to write my white paper on, but i believe it will have something to do with gun ownership, hunting, and gun crime. These sources should cover this topic. 
+I plan to research gun ownership among Americans. I will look at hunters and regular civilians. I have websites dedicated to survey gun owners, stockpile statistics on gun owners, research the relationship between gun ownership and crime, etc. I have also listed news reports of gun research and crime. I'm not positive what exactly to write my white paper on, but i believe it will have something to do with gun ownership, hunting, and gun crime. These sources should cover this topic. 
 
 
 
