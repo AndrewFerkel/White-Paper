@@ -23,7 +23,7 @@ Why doesn’t the government just buy back the assault rifles and leave citizens
 
 
 
-
+ 
 
 •	
 •	
